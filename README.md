@@ -62,5 +62,5 @@ Each course combines empirical analysis with conceptual depth, reflecting Dr. Ar
 
 ---
 
-© Dr. Fariborz Aref · Teaching and Curriculum
+©Fariborz Aref · Teaching and Curriculum
 
