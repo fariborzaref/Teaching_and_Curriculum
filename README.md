@@ -1,5 +1,5 @@
 # Teaching and Curriculum  
-Curated by **Fariborz Aref**
+Curated by **Dr. Fariborz Aref**
 
 ---
 
